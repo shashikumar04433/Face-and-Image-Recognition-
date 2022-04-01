@@ -56,8 +56,8 @@ List of all the users<br>
 
 <br><br>
 
-Made By ❤ : [JoeVenner](mailto:ylafrimi@gmail.com)<br>
-**Free Software, Hell Yeah!**
+Made By ❤ : Shashikumar Reddy<br>
+** All of you can use my code !**
 
 
 
